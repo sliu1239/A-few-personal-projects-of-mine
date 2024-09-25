@@ -1,0 +1,1 @@
+Hi! There seems to be some issues with the way I uploaded some of my files so I am working on it stat! As I've just created this repository (and account) not too long ago, this isn't the entirety of my personal projects, I will be continuing to upload them over the next few days as I gather their whereabouts on my pc!
